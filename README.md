@@ -1,0 +1,1 @@
+# Solve Mate Privacy Policy
